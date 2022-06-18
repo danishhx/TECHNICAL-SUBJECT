@@ -1,3 +1,1 @@
-
-
-![Notes](http://clipart-library.com/clipart/1859004.htm)
+![Notes](https://dribbble.com/shots/1244719-Book-Animation-GIF)
